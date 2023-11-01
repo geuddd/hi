@@ -1,9 +1,16 @@
-wifi:
-https://luphoria.com/netlog-policy-password-tool
-
-personal acc:
-chrome://settings/sign-out
-https://tinyurl.com/addsession
-
-pr0xy:
-mathrules.dev/uv.html?site=
+n0wgg
+https://algebraicequations.mark-hansen.com/
+https://astroid.jib.ar/worksheets/index.html
+https://sock.hozzywozzy.com/
+https://asteroid.tx2600.net/
+https://nowgg.nl/
+https://calculator.strangled.net/
+https://staff.greenvilleducation.tk/
+https://calculatormath.uk.to/
+https://login.tomahawkchurch.org/
+https://schoolmathhomework.forss.to/
+https://nowgg.wtf/
+https://astroid.gg
+https://pedrohomework.iprogreso.cl/
+https://v3beta.flyawaybear.nl/
+https://k12.sportseducationinstructors.org
