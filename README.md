@@ -1,16 +1,13 @@
-n0wgg
-https://algebraicequations.mark-hansen.com/
-https://astroid.jib.ar/worksheets/index.html
-https://sock.hozzywozzy.com/
-https://asteroid.tx2600.net/
-https://nowgg.nl/
-https://calculator.strangled.net/
-https://staff.greenvilleducation.tk/
-https://calculatormath.uk.to/
-https://login.tomahawkchurch.org/
-https://schoolmathhomework.forss.to/
-https://nowgg.wtf/
-https://astroid.gg
-https://pedrohomework.iprogreso.cl/
-https://v3beta.flyawaybear.nl/
-https://k12.sportseducationinstructors.org
+UItraVoiIet Links
+
+Devs/Gift: https://work.geudsgift.repl.co/
+
+1st Set of links:
+https://science.geud.repl.co/
+https://science-2.geud.repl.co/
+
+2nd Set of links:
+https://science--geudv2.repl.co/
+https://science2.geudv2.repl.co/
+
+Extras: abc.geud.repl.co
